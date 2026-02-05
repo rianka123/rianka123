@@ -9,4 +9,5 @@ Javascript - 4 years
 Bootstrap - 5 years
 Photoshop - 4 years
 currently working in-Silicon Media Technologies Pvt Ltd, Bangalore
-[Rianka-new-cv.pdf](https://github.com/rianka123/rianka123/files/7617575/Rianka-new-cv.pdf)
+[Rianka-new-cv.pdf][Rianka_Mitra_Resume_3.pdf](https://github.com/user-attachments/files/25091338/Rianka_Mitra_Resume_3.pdf)
+
